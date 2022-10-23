@@ -1,19 +1,5 @@
 # oct15-dummyrepo
-sgsdfgsd
-sd
-fsd
-fg
-ad
+adfadfasd
+asd
 f
 asdf
-asdfdfadfa
-dfasdfasdfasdf
-asd
-fas
-dfas
-df
-sad
-fsa
-df
-sad
-f
